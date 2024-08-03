@@ -1,5 +1,5 @@
 ## Hi there 👋
-
+FREE 4308!
 <!--
 **dom0sh/dom0sh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
